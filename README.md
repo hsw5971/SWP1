@@ -1,2 +1,2 @@
-2018xxxx HSW
-kookmin univ. :math
+2018xxxx Hong
+kookmin univ. math
