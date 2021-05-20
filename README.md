@@ -1,2 +1,2 @@
 2018xxxx HSW
-kookmin univ.
+kookmin univ. math
