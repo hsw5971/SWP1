@@ -1,2 +1,2 @@
-2018xxxx && Hong
+2018xxxx HSW
 kookmin univ. math
